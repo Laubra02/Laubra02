@@ -1,10 +1,7 @@
-- 👋 Hi, I’m @Laubra02
-- 👀 I’m interested in ...
-- 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...
+- En busca de GM'S, holo Hgalaxy.net
+- Contactame Valim#9999
+- Narcista
+- Me gustan los animales
+- <3
 
-<!---
-Laubra02/Laubra02 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
+
